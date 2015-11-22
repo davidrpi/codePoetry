@@ -1,3 +1,8 @@
+David Dominguez
+Code Poetry: Project 03
+
+Video: https://vimeo.com/146174180
+
 "Researchers have proven scientifically that humans are all 
 one people...The color of our ancestors’ skin and ultimately 
 my skin and your skin is a consequence of ultraviolet light, 
